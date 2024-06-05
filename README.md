@@ -34,9 +34,8 @@ Meu nome é Sandra, muito prazer!
 🎁 Minha linguagem de amor é dar presentes, mas adoro toque físico (dependendo da pessoa)
 
 👩🏻‍🎓 Estou, atualmente no 3º ano do Ensino Médio (finalmente)
-  
 
-![](![image](https://github.com/sandyalmeida2202/sandyalmeida2202/assets/170741576/7a7986a4-2831-4094-ae9a-100a56ad3a21)
-)
 
+
+![](https://tenor.com/pt-BR/view/lady-and-the-tramp-dogs-spaghetti-kiss-kissing-gif-4765448)
 
